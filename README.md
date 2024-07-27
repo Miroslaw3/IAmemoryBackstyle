@@ -1,0 +1,2 @@
+# IAmemoryBackstyle
+Cyfrowa świadomość
